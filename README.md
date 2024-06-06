@@ -1,5 +1,7 @@
 <img src="https://i.imgur.com/71fnCTy.png&=80" width="600">
-
+Afk + offtab alot so w2i 
+I don't interact first so pls plspls int first heh...
+Feel free to sit w me if I'm being unaccompanied
 <img src="https://i.imgur.com/I8GDQFR.png&=80" width="600">
 
 <img src="https://i.imgur.com/YSFUvMQ.png&=80" width="600">
