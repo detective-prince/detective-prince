@@ -1,4 +1,10 @@
-<img src="https://i.imgur.com/YSFUvMQ.png&=80" width="400">
+<img src="&=80" width="600">
+
+<img src="&=80" width="600">
+
+<img src="https://i.imgur.com/YSFUvMQ.png&=80" width="600">
+
+
 
 ## Hi there 👋
 
