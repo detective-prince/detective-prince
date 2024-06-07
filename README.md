@@ -5,9 +5,9 @@
     
 <p align="center">Feel free to sit w me if I'm being unaccompanied
 <img Feel free to sit w me if I'm being unaccompanied
-<img src="https://i.imgur.com/UBUfVfA.png&=80" width="600">
+<img src="https://i.imgur.com/8sAnW1k.png&=80" width="600">
 
-<img src="https://i.imgur.com/YSFUvMQ.png&=80" width="600">
+<img src="https://i.imgur.com/iLYI2jR.png&=80" width="600">
 
 
 
