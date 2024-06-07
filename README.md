@@ -9,25 +9,6 @@
 <img Feel free to sit w me if I'm being unaccompanied
 <img src="https://i.imgur.com/8sAnW1k.png&=80" width="600">
 
-## LiNK
+#<p align="center"> LINKS
 
 <img src="https://i.imgur.com/iLYI2jR.png&=80" width="600">
-
-
-
-## Hi there 👋
-
-<!--
-**detective-prince/detective-prince** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
