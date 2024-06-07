@@ -13,7 +13,7 @@
 
     
 <p align="center">✻  𝗙𝗲𝗲𝗹 𝗳𝗿𝗲𝗲 𝘁𝗼 𝗶𝗻𝘁 𝗜 𝗱𝗼𝗻'𝘁 𝗯𝗶𝘁𝗲 :𝗗𝗗
-<img Feel free to sit w me if I'm being unaccompanied
+
 <img src="https://i.imgur.com/3HNDQbW.png&=80" width="600">
 
 <h1 align="center"></[](h)>
