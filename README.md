@@ -1,7 +1,7 @@
 <h1 align="center"></[](i)>
 
 
-[. ✿ . ](htt)
+[. ❀ . ](htt)
 
 
 </h1>
@@ -21,6 +21,6 @@
 
 [retrospring](https://pronouns.cc/@kureomi)
 
-[rentry](https://rentry.co/lunaee)
+[. ❀ . rentry](https://rentry.co/lunaee)
 </h1>
 <img src="https://i.imgur.com/iLYI2jR.png&=80" width="600">
