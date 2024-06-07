@@ -9,6 +9,11 @@
 <img Feel free to sit w me if I'm being unaccompanied
 <img src="https://i.imgur.com/8sAnW1k.png&=80" width="600">
 
-#<p align="center"> LINKS
+<h1 align="center"></[prns](https://pronouns.cc/@kureomi)>
+
+[retrospring](https://pronouns.cc/@kureomi)
+
+[rentry](https://rentry.co/lunaee)
+</h1>
 
 <img src="https://i.imgur.com/iLYI2jR.png&=80" width="600">
