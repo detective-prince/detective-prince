@@ -20,6 +20,7 @@
 
 [retrospring](https://pronouns.cc/@kureomi)
 
-[. ❀ . rentry](https://rentry.co/lunaee)
+[rentry](https://rentry.co/lunaee)
 </h1>
+<h1 align="center"></[](i)>
 <img src="https://i.imgur.com/iLYI2jR.png&=80" width="600">
