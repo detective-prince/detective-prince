@@ -21,7 +21,7 @@
 
 [retrospring](https://pronouns.cc/@kureomi)
 
-[❁ rentry](https://rentry.co/lunaee)
+[❁ rentry](https://rentry.co/lunnae)
 
 </h1>
 
